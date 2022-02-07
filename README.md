@@ -6,7 +6,7 @@
 📢 Pass-ta공모전 참여  
  
 
-⬇⬇⬇내가 직접 발표한 UCC  
+⬇⬇⬇ 직접 발표한 100초 UCC  
 
 https://user-images.githubusercontent.com/71878202/151559087-a49355f6-35fc-4ab6-a0a7-111f610b04ed.mp4
 
