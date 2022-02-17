@@ -17,16 +17,10 @@ https://user-images.githubusercontent.com/71878202/151559087-a49355f6-35fc-4ab6-
 ![image](https://user-images.githubusercontent.com/71878202/151561202-889a7f9f-82a4-4cbc-b129-1bdd6bcf354c.png)
 
 ![image](https://user-images.githubusercontent.com/71878202/151561545-8d124b5c-f4e8-4d32-bda9-122829ae59ff.png)
-영상 재생은 여기서 ⬇⬇  
-https://user-images.githubusercontent.com/71878202/151561469-0775ee5c-348c-4b8e-8afc-5f8675d9b7a5.mp4
 
 ![image](https://user-images.githubusercontent.com/71878202/151561951-5402cd4e-df59-417a-b3d3-7f95e42bfba5.png)
-영상 재생은 여기서(파일이 커서 YouTube에 업로드) ⬇⬇  
-https://youtu.be/BrxI93_PmcI
 
 ![image](https://user-images.githubusercontent.com/71878202/151563302-cb94c7b1-6993-411d-8034-b5d6608233e4.png)
-영상 재생은 여기서(파일이 커서 YouTube에 업로드) ⬇⬇  
-https://youtu.be/gKvYV6ukvt0
 
 ![image](https://user-images.githubusercontent.com/71878202/151567795-3568f3b4-7657-43cd-93a9-2d8e3ec71f2a.png)
 
